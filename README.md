@@ -1,0 +1,5 @@
+# -Sanket9967-MSC-Part-1-RollNo.33-Sem2
+
+SANKET THORAT
+Roll.NO.:-33
+MSC CS PART 1(SEM2)
